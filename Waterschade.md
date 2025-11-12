@@ -73,7 +73,7 @@ Onze experts zijn **24/7 bereikbaar**, kosteloos voor de gedupeerde en ondersteu
 
 ---
 
-Voor een uitgebreide uitleg over hoe wij [waterschade aanpakken en onze contra-expertise inzetten](https://schadeoplossing.nl/waterschade).
+Voor een uitgebreide uitleg over hoe wij [waterschade aanpakken en onze contra-expertise inzetten](https://schadeoplossing.nl/waterschade/).
 
 **Schadeoplossing Nederland B.V. – uw onafhankelijke contra-expert bij waterschade in heel Nederland.**
 
