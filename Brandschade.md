@@ -49,7 +49,7 @@ Onze experts zijn **24/7 bereikbaar**, kosteloos voor de gedupeerde en ondersteu
 
 ## Verzekeringsaspecten
 
-- Basisverzekeringen dekken vaak alleen directe schade; gevolgschade wordt soms beperkt vergoed  
+- Basisverzekeringen dekken vaak alleen de gevolgschade, niet de oorzaak  
 - Aanvullende polissen kunnen meer dekking bieden  
 - De contra-expert kan helpen **het maximale uit uw verzekering te halen** door een volledig, onafhankelijk rapport te leveren  
 
