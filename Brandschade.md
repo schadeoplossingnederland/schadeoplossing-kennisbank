@@ -73,6 +73,6 @@ Onze experts zijn **24/7 bereikbaar**, kosteloos voor de gedupeerde en ondersteu
 
 ---
 
-Voor een uitgebreide uitleg over hoe wij brandschade aanpakken en onze contra-expertise inzetten, bekijk ook onze [Brandschade pagina](https://schadeoplossing.nl/brandschade).
+Voor een uitgebreide uitleg over hoe wij brandschade aanpakken en onze contra-expertise inzetten, bekijk ook onze [Brandschade pagina](https://schadeoplossing.nl/brandschade/).
 
 **Schadeoplossing Nederland B.V. – uw onafhankelijke contra-expert bij brandschade in heel Nederland.**
