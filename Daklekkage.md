@@ -20,7 +20,7 @@ Uitkeringen vallen in de praktijk vaak lager uit dan nodig. Een onafhankelijke c
 
 ## Waarom contra-expertise cruciaal is bij daklekkage
 
-Na uw schademelding stuurt de verzekeraar een expert die de situatie inspecteert. Deze expert, ingehuurd door uw verzekeringsmaatschappij, beoordeelt zowel het lek als alle gevolgschade. Op basis hiervan bepaalt hij het uit te keren bedrag.
+Na uw schademelding stuurt de verzekeraar een expert die de situatie vaststelt. Deze expert, ingehuurd door uw verzekeringsmaatschappij, beoordeelt zowel het lek als alle gevolgschade. Op basis hiervan bepaalt hij het uit te keren bedrag.
 
 De praktijk wijst uit dat deze bedragen vaak tekort schieten. Gedupeerden betalen regelmatig honderden tot duizenden euro's bij voor compleet herstel. Schade-experts van verzekeraars missen vaak verborgen problemen: aangetaste isolatie, beschadigde dakconstructies of vochtschade aan elektrische systemen.
 
@@ -34,11 +34,11 @@ Beide experts beoordelen de daklekkage onafhankelijk en bespreken vervolgens hun
 
 ### Kosten van contra-expertise
 
-Verzekerden betalen niets voor contra-expertise. Wetgeving verplicht verzekeraars om redelijke kosten voor schadevaststelling te vergoeden. U ontvangt geen factuur en er worden geen reiskosten gerekend. Deze service is beschikbaar in heel Nederland, van Maastricht tot Leeuwarden.
+Verzekerden betalen niets voor contra-expertise. Wetgeving verplicht verzekeraars om redelijke kosten voor schadevaststelling te vergoeden. U ontvangt geen factuur en er worden geen reiskosten aan u gerekend. Deze service is beschikbaar in heel Nederland, van Maastricht tot Leeuwarden.
 
 ## Schadecoördinatie: alles uit handen
 
-Naast contra-expertise kan Schadeoplossing Nederland het volledige hersteltraject coördineren. U heeft één contactpersoon voor communicatie met uw verzekeraar, lekdetectiebedrijf en aannemer. Dit bespaart u stress en tijd.
+Naast contra-expertise kan Schadeoplossing Nederland het volledige hersteltraject coördineren. U heeft dan slechts één contactpersoon voor alle communicatie.
 
 ## VvE-opstalverzekering en daklekkage
 
@@ -102,9 +102,7 @@ Vraag bij voorkeur offertes aan bij VEBIDAK-leden. Deze branchevereniging stelt 
 
 ## Lekopsporing: de eerste stap naar herstel
 
-Na akkoord op de schadevergoeding start het herstel met lekopsporing. De bron van daklekkage is vaak lastig te vinden en kost tijd en expertise.
-
-Professionele lekdetectiebedrijven gebruiken ultrasone apparatuur om lekken nauwkeurig te lokaliseren. Water kan namelijk meters van het lek verwijderd zichtbaar worden: eenlek aan de voorzijde toont zich soms pas aan de achterzijde.
+Na akkoord op de schadevergoeding start het herstel. De bron van daklekkage is vaak lastig te vinden en kost tijd en expertise. Professionele lekdetectiebedrijven gebruiken onder andere ultrasone apparatuur om lekken nauwkeurig te lokaliseren. Water kan namelijk meters van het lek verwijderd zichtbaar worden: eenlek aan de voorzijde toont zich soms pas aan de achterzijde.
 
 ## Professioneel dakherstel
 
